@@ -1,0 +1,1 @@
+# Amosfoto.id
